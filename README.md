@@ -5,6 +5,9 @@
 
 「Free Image To Video AI」は、画像を動画に変換するための革新的なツールです。このツールは、AI技術を駆使して、画像をスムーズに動画に変換します。特に、プロフェッショナルなビデオ編集者が手元にいるかのような体験を提供します。興味のある方は、[Image to Video AI](https://imagetovideoai.app/)を訪れて、今すぐ試してみてください。
 
+- [Image to Video AI](https://mochi1ai.com/)
+- [Goku Image to Video AI](https://gokuai.org/)
+
 ## 画像から動画への変換の新しい可能性
 
 このツールは、画像を動画に変換するプロセスを簡素化し、誰でも簡単に高品質な動画を作成できるようにします。特に、長尾キーワード「Free Image To Video AI」を使用することで、SEO効果を最大化し、より多くのユーザーにリーチすることが可能です。AIの力を借りて、画像を生き生きとした動画に変えることができます。
